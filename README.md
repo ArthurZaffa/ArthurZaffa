@@ -9,4 +9,4 @@ Meu nome é Arthur Gomes
 ### Você pode entrar em contato📫
 zaffalon.arthur@escola.pr.gov.br 
 
-![](https://tenor.com/bRb3u.gif)
+![](https://media1.tenor.com/m/vtZV-Da3wQYAAAAC/homer-simpson-the-simpsons.gif)
